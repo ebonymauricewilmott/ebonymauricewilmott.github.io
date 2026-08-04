@@ -1,3 +1,3 @@
 
-### contact- ebonyfmw [at] gmail.com
+contact- ebonyfmw [at] gmail.com
 Based in Melbourne
