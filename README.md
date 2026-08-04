@@ -1,3 +1,3 @@
 
-### contact- ebonywilmott [at] icloud.com
+### contact- ebonyfmw [at] gmail.com
 Based in Melbourne
